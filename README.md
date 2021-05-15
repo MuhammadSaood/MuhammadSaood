@@ -1,4 +1,4 @@
-### Hi there 👋, ### Hi there 👋, I'm is Muhammad Saood
+### Hi there 👋, I'm is Muhammad Saood
 #### I am programmer
 ![I am programmer](https://pbs.twimg.com/profile_banners/1373814363300237312/1618374968/1080x360)
 
